@@ -1,0 +1,1 @@
+# ShapeAI_Bootcamp_BWDJR_mini_project
